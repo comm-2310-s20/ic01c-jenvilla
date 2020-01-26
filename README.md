@@ -6,9 +6,9 @@
 
 1. I'm taking this class because _________________________
 
-1. My favorite movie is ___________________
+1. My favorite movie is *Warm Bodies*
 
-1. My favorite tv show is _________________
+1. My favorite tv show is *Supernatural*
 
-1. My favorite YouTube channel is ____________________
+1. My favorite YouTube channel is *Unus Annus*
 
