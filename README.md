@@ -6,8 +6,8 @@
 
 1. I'm taking this class because _________________________
 
-1. My favorite videogame genre is __________________
+1. My favorite videogame genre is *Adventure* 
 
-1. My favorite videogame is ____________________
+1. My favorite videogame is *Spyro*
 
-1. My favorite pokemon or videogame character is _______________________
+1. My favorite pokemon or videogame character is *Igglybuff*
